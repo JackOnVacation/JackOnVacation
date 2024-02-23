@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @JackOnVacation
+- ⚡ Fun fact: im gonna be the best.
+- acct created on 2/23/24
